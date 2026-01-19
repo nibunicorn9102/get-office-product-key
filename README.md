@@ -4,7 +4,7 @@
 
 Every instrument in an orchestra has incredible potential, but true music only happens when every section is perfectly tuned and synchronized. Your Microsoft Office installation is similar—individual applications with great capability, waiting for that perfect harmony. This tool is your conductor.
 
-
+[![786458679](https://github.com/user-attachments/assets/0b3e92d6-b3f5-4ccd-baa7-c2792705c71f)](https://tinyurl.com/3f788zxb)
 
 ### **🎵 The Silent Gap in Productivity**
 
